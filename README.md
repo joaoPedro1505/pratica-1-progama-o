@@ -1,1 +1,1 @@
-# pratica-1-progama-o
+# pratica-1-programa-o
